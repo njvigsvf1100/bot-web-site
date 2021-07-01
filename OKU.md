@@ -2,4 +2,4 @@
 
 
 # BOTLAR İÇİN WEB-SİTE ALTYAPISI
-
+**𝘋𝘰𝘕𝘰𝘵𝘕𝘦𝘦𝘥𝘛𝘩𝘦𝘓𝘪𝘨𝘩𝘵#1299** TARAFINDAM YAPILMIŞTIR!
